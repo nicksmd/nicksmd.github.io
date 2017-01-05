@@ -1,2 +1,0 @@
-# nicksmd.github.io
-ádasdasdsasa
